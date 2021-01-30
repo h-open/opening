@@ -1,0 +1,2 @@
+# opening
+Thedining-roomwas inconvenientlycrowded.
